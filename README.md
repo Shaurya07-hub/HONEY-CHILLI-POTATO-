@@ -1,0 +1,1 @@
+Want a tounge twisting recipe at home? Honey chilli potato is perfect Sunday brunch for You. Crispy potato fingers glazed with a honey chilli sauce. A crispy snack with a lot of nutritional value a delicious recipe with cooking method and ingredients.
