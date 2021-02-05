@@ -1,1 +1,1 @@
-Want a tounge twisting recipe at home? Honey chilli potato is perfect Sunday brunch for You. Crispy potato fingers glazed with a honey chilli sauce. A crispy snack with a lot of nutritional value a delicious recipe with cooking method and ingredients.
+Crispy Honey Chilli Potatoes are a super addictive snack – fried potato fingers are tossed in a sesame honey chilli sauce that’s sweet and spicy and will give you sticky fingers that you’ll be licking. 
